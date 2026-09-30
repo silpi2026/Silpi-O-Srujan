@@ -1,1 +1,0 @@
-# Silpi-O-Srujan
